@@ -1,0 +1,2 @@
+# How-to-Fix-Spectrum-app-not-working-
+If you can't use Spectrum Tv and don't know how to fix it, this post is for you. There have been many reports from users who cannot get the Spectrum app not working on their devices. The app prevents them from streaming certain services or prevents them from logging in entirely. This is usually due to a service or internet outage, but it can also be a sign of an outdated app. https://www.not-working.co/spectrum-app
